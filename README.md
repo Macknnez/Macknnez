@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Macknnez
 - 👀 I’m interested in music, art and photography
-- 🌱 I’m currently learning about music and design
+- 🌱 I’m currently learning about coding, music and design
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me @axelmccarty on IG
 
